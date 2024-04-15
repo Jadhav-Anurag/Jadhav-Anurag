@@ -9,7 +9,7 @@
 
 ###
 
-<img align="right" height="150" src="https://miro.medium.com/v2/resize:fit:1100/format:webp/1*3oxYl6vcekNlPLY7j2dS1w.png"  />
+<img align="right" height="150" src="https://playcontestofchampions.com/wp-content/uploads/2021/11/champion-ultron-720x720.jpg"  />
 
 ###
 
